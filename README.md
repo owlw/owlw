@@ -6,6 +6,5 @@
 - 🤔 I’m looking for help with my twitter account
 - 💬 Ask me about My twitter account
 - 📫 How to reach me: by twitter
-- 😄 Pronouns:
-- ⚡ Fun fact: 
+- ⚡ Fun fact: i love twitter
 
